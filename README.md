@@ -1,2 +1,2 @@
-# Kampala-Music-Academy
+# Schola-Angelicus
 Shaping Talent
